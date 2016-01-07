@@ -4,6 +4,6 @@ Just another repository
 
 
 Hi Humans! 
-Anthony here, I have eno idea why im typing this things and words. 
-But I hope to see you soon. 
+Anthony here, I have no idea why im typing these things and words. 
+I hope to see you soon. 
 
